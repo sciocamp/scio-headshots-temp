@@ -1,0 +1,1 @@
+# scio-headshots-temp
